@@ -7,7 +7,7 @@
 <div align="center"> basic DNI + darkshippers/proshippers genuinely stay the fuck away from me
 <div align="center"> .
 
- [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://mxngledremxins.straw.page/)
+ [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
 
  <div align="center"> iron lung is my biggest comfort game & movie i've rewatched the movie at least 10 times, watched 20 different playtroughs, 300 hours worth of theories (still continuing) and played 100% of the game myself. we are THE iron lung fan, waiting for our shirt and poster to arrive ^w^*
 
