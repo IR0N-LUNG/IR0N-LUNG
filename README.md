@@ -10,3 +10,7 @@
  [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://mxngledremxins.straw.page/)
 
  <div align="center"> iron lung is my biggest comfort game & movie i've rewatched the movie at least 10 times, watched 20 different playtroughs, 300 hours worth of theories (still continuing) and played 100% of the game myself. we are THE iron lung fan, waiting for our shirt and poster to arrive ^w^*
+
+<div align="center"> <img width="101" height="58" alt="Image" src="https://github.com/user-attachments/assets/07b76045-4dc9-4cda-be79-c880e567c0ea" />
+
+<div align="center"> <img width="736" height="150" alt="Image" src="https://github.com/user-attachments/assets/55657772-d33b-409b-ab66-6a1789035165" />
