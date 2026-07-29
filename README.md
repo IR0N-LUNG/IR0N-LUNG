@@ -5,6 +5,7 @@
 <div align="center"> call us jay/vanny/skye/any other fictkin name we don't care use whatever you think matches us best
 <div align="center"> 20 y.o
 <div align="center"> basic DNI + darkshippers/proshippers genuinely stay the fuck away from me
+<div align="center"> project hail mary fans & bloodymary shippers DNI
 <div align="center"> .
 
  [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
