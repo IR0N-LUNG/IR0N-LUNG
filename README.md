@@ -8,7 +8,7 @@
 <div align="center"> project hail mary fans & bloodymary shippers DNI
 <div align="center"> .
 
- [atabook](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
+ [atabook (tw: simon drenched in blood)](https://malharejayexe.atabook.org/) ꒰୧ ‧₊˚🔧꒱ [straw](https://thebloodyconvict.straw.page/)
 
  <div align="center"> iron lung is my biggest comfort game & movie i've rewatched the movie at least 30 times, watched 20 different playtroughs, 300 hours worth of theories (still continuing) and played 100% of the game myself. we are THE iron lung fan, waiting for our shirt and poster to arrive ^w^*
 
